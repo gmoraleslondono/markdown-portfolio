@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+## Mis dibujos animados favoritos:
+* Los Simpsom
+* Padre de familia
+* Big mouth
