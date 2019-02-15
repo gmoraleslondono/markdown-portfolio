@@ -1,0 +1,1 @@
+My name is **Gloria Morales**, I am an _Industrial Engineer_ and I recently moved to Stockholm. I am currently changing my career and started to study programming. I am *self-learning* and I am doing some courses on Udemy, Udacity and others. 
